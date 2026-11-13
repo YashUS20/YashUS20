@@ -1,6 +1,6 @@
  - Hi, I’m Yashaswini ☺️
  - You can search me up @YashUS20
- - 🌱 Data analyst loading....
+ - 🌱 Building skills to be an AI engineer....
  - Pronouns: she/her
 
 
